@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Antoneering
+- 👀 I’m interested in aerospace
+- 🌱 I’m currently learning that
+- 说实话俺中文更好
